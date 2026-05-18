@@ -9,4 +9,7 @@ hi. click on straw.page links in my desc.
 https://github.com/user-attachments/assets/5a768ea2-427e-4bcc-b169-baf50b499da3
 
 
+<img width="638" height="409" alt="Screenshot 2026-05-18 125607" src="https://github.com/user-attachments/assets/57a2ec05-5f79-4c6d-b7cf-4075cd74e319" /> wip
+
+
 
