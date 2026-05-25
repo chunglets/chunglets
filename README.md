@@ -4,7 +4,6 @@ hi. click on straw.page links in my desc.
 
 
 
-<img width="490" height="381" alt="4 MISTY" src="https://github.com/user-attachments/assets/625254b8-1442-4b48-b71d-2faf6cb59072" />
 
 
 
