@@ -3,6 +3,12 @@
 hi. click on straw.page links in my desc.
 
 
+
+<img width="490" height="381" alt="4 MISTY" src="https://github.com/user-attachments/assets/625254b8-1442-4b48-b71d-2faf6cb59072" />
+
+
+
+
 <img width="21" height="22" alt="PC _ Computer - Undertale - Kickstarter Sprites - Flowey Dance" src="https://github.com/user-attachments/assets/fcd32e21-3ec8-4ca6-88e7-e9adaf498f86" />
 
 
