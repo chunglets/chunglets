@@ -1,6 +1,8 @@
 
 
-hi. click on straw.page links in my desc.
+hi. click on straw.page links in my desc. I block all safe server The Freak Circus fans. I hate you all.
+
+I usually hang around at the english safe server because 18+ is so buns 😂😂😂
 
 
 
@@ -12,9 +14,11 @@ hi. click on straw.page links in my desc.
 
 
 
-https://github.com/user-attachments/assets/d700d69f-3c59-4b20-9360-ed58b3e73b9c
 
-<img width="359" height="455" alt="pink addison does coke" src="https://github.com/user-attachments/assets/97aa21d7-52e0-40cb-ad29-d4e380994298" />
+
+https://github.com/user-attachments/assets/d7bd2db2-32b4-43a0-994b-4edb991752b3
+
+
 
 
 
