@@ -2,6 +2,8 @@
 
 hi. click on straw.page links in my desc. I block all safe server The Freak Circus fans. I hate you all.
 
+
+
 I usually hang around at the english safe server because 18+ is so buns 😂😂😂
 
 
@@ -16,7 +18,8 @@ I usually hang around at the english safe server because 18+ is so buns 😂😂
 
 
 
-https://github.com/user-attachments/assets/d7bd2db2-32b4-43a0-994b-4edb991752b3
+<img width="1199" height="688" alt="image" src="https://github.com/user-attachments/assets/2935aee9-ee66-4d2a-8586-6cc013c24960" />
+
 
 
 
