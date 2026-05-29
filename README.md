@@ -5,7 +5,7 @@ hi. click on straw.page links in my desc. I block all safe server The Freak Circ
 
 
 I usually hang around at the english safe server because 18+ is so buns 😂😂😂
-<img width="1867" height="1571" alt="4 VALE" src="https://github.com/user-attachments/assets/6f0456dc-08e4-49fd-87d3-695ec2d7a45c" />
+
 
 
 
