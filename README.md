@@ -1,8 +1,12 @@
-hi. click on straw.page links in my desc. I block all safe server The Freak Circus fans. I hate you all.
+"oo what is WINTRYRUNE?"
 
 
+WELL. I'm not DONE with my AU. 
+LOOK AWAY. AVERT YOUR EYES!!!! NOW!!!!
 
-I usually hang around at the english safe server because 18+ is so buns 😂😂😂
+Ask about my AU in a straw gimmick idk.
+
+I will make a proper AU strawpage (CHARACTER PROFILES ONLY) one day!!!!
 
 
 
@@ -10,10 +14,6 @@ I usually hang around at the english safe server because 18+ is so buns 😂😂
 
 
 https://github.com/user-attachments/assets/965f8002-e779-4ecb-a059-3cefc2c95544
-
-
-<img width="1250" height="1250" alt="i do not ship cocoapowder" src="https://github.com/user-attachments/assets/4c919557-887e-41cd-bf11-3572bab9f23a" />
-
 
 
 
