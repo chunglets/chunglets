@@ -8,9 +8,9 @@
 WELL. I'm not DONE with my AU. 
 LOOK AWAY. AVERT YOUR EYES!!!! NOW!!!!
 
-<sub> Ask about my AU in a straw gimmick idk.
+<sub>https://wintryrune.straw.page
 
-I will make a proper AU strawpage (CHARACTER PROFILES ONLY) one day!!!!
+I only have character designs. hi!
 
 
 
