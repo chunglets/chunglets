@@ -6,12 +6,9 @@
 
 
 WELL. I'm not DONE with my AU. 
-LOOK AWAY. AVERT YOUR EYES!!!! NOW!!!!
+But I do! have a strawpage draft hi!
 
 <sub>https://wintryrune.straw.page
-
-I only have character designs. hi!
-
 
 
 
