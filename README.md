@@ -6,6 +6,8 @@ Check [Wintryrune](https://wintryrune.straw.page/) NOW
 
 Read my [straw.page](https://quandyne.straw.page/bro) for my byi and dni. ok thanks
 
+I follow pretty skins btdubz,, you guys are talented, ok? ok.
+
 
 
 
