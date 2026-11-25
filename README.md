@@ -11,7 +11,8 @@ And check out my new, remade [art straw](https://waspchaaan.straw.page) with reg
 I follow pretty skins btdubz,, you guys are talented, ok? ok.
 
 
-https://github.com/user-attachments/assets/786ce85c-7f27-4a6b-ab18-b71ecb4829cc
+
+https://github.com/user-attachments/assets/f9a9aabf-27d1-4eaf-819f-2143ab80730c
 
 
 
